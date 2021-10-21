@@ -4,4 +4,6 @@
 - 👯 I’m looking to collaborate on ...
 - 📫 How to reach me: vaishnavivarma1999@gmail.com 
 - 🔗 Instagram: https://www.instagram.com/thecodeone/
+- 🔗 Instagram: https://www.instagram.com/vaishnavixvarma/ {My Personal}
+-    LOL : 
 - 😆 “Debugging” is like being the detective in a crime drama where you are also the murderer.
