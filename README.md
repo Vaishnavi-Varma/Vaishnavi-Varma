@@ -1,6 +1,6 @@
 ### Hi there 👋
 - 👀 I’m interested in Full Stack Development
-- 🌱 I’m currently learning Full Stack Development
+- 🌱 I’m a trained and a certified Full Stack Development
 - 👯 I’m looking to collaborate on ...
 - 📫 How to reach me: vaishnavivarma1999@gmail.com 
 - 🔗 Instagram: https://www.instagram.com/thecodeone/
